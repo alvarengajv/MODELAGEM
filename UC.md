@@ -1,1 +1,1 @@
-# GameFit(app de academia): https://app.diagrams.net/#G1bkUlXRC7037vj7sIpnS1x0wC149xGjjn
+# GameFit(app de academia): https://drive.google.com/file/d/1t1Ilu8toNIUdtHE14ZNb2lwP_d3Bz4tA/view
